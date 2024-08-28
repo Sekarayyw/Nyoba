@@ -1,1 +1,2 @@
 # Nyoba
+# aku pulangggg
